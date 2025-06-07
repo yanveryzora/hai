@@ -1,0 +1,2 @@
+# hai
+baru buat github
